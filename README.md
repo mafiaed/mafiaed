@@ -4,4 +4,4 @@
 
 †
 
-[![https://files.catbox.moe/7ngrco.png]
+https://files.catbox.moe/7ngrco.png hold on ok..
