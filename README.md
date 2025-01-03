@@ -4,4 +4,4 @@
 
 †
 
-![hi]([https://files.catbox.moe/7ngrco.png](https://files.catbox.moe/xx0m8a.png)
+![hi](https://files.catbox.moe/xx0m8a.png)
