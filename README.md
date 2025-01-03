@@ -6,4 +6,4 @@
 
 ![hi](https://files.catbox.moe/xx0m8a.png)
 
-[freak 1](https://github.com/schmyt) [freak 2](https://github.com/eternalaeon) me
+[paul](https://github.com/schmyt)　　 [tex](https://github.com/eternalaeon)　　 me
