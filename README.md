@@ -10,6 +10,6 @@
 
 paul fick dich
 
-#skaterboys
+☆
 
 [rentry](https://rentry.co/snakelias)　　　　[neospring](https://neospring.org/@dratio)　　　　[ata](https://snakelias.atabook.org)
