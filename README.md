@@ -12,4 +12,4 @@ paul ist geistig krank und stinkt
 
 #skaterboys
 
-[![WIP not available yet](https://files.catbox.moe/i1m0ux.png)](https://rentry.co/skaterboys)
+![](https://files.catbox.moe/f353bj.png)
