@@ -11,5 +11,3 @@
 [paul](https://github.com/schmyt)　　　　　 [tex](https://github.com/eternalaeon)　　　　　 me
 
 paul hurensohn
-
-☆
