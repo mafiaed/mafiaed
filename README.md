@@ -8,6 +8,6 @@
 
 ![hi](https://files.catbox.moe/xx0m8a.png)
 
-[paul](https://github.com/schmyt)　　　　　 [tex](https://github.com/eternalaeon)　　　　　 me
+[paul](https://github.com/schmyt)　　　　　 [tex](https://github.com/cannib3l)　　　　　 me
 
 17:55[papaplatte] whos still on the server17:55[spezi] no
