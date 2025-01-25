@@ -12,4 +12,4 @@
 
 #fudanshi
 
-![paulaner spezi](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRljGddGsvHeywBEwj5qWUcO9YEpBuMq3sDyg&s)
+![paulaner spezi](https://lieferteam.ch/cdn/shop/products/Bazaart_20221223_123040.png?v=1671798168&width=2048)
