@@ -11,5 +11,3 @@
 [paul](https://github.com/schmyt)　　　　　 [tex](https://github.com/cannib3l)　　　　　 me
 
 #fudanshi
-
-![paulaner spezi](https://lieferteam.ch/cdn/shop/products/Bazaart_20221223_123040.png?v=1671798168&width=2048)
