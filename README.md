@@ -1,7 +1,3 @@
-<p align="center"> ╯︿╰
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kskepfn2b7m6iayvllhcnnzmwu&cover_image=true&theme=novatorem&show_offline=true&background_color=212121&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kskepfn2b7m6iayvllhcnnzmwu&redirect=true)
-
 ![doubles thin ice btw](https://files.catbox.moe/i0x1iv.gif)
 
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kskepfn2b7m6iayvllhcnnzmwu&cover_image=true&theme=novatorem&show_offline=true&background_color=212121&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kskepfn2b7m6iayvllhcnnzmwu&redirect=true)
